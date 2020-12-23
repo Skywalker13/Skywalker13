@@ -1,1 +1,1 @@
-![](./6vOSmIZ.gif)
+![](./orc.jpg)
